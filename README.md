@@ -9,3 +9,6 @@ Meu nome é : Brunofuruta
 ### Voçe pode entrar em contato comigo no 📬
 
 Bruno.furuta@escola.pr.gov.br
+
+
+![_].()https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-538769707570332786
