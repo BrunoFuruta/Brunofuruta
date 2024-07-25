@@ -12,4 +12,4 @@ Bruno.furuta@escola.pr.gov.br
 
 
 ![]()
-https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-538769707570332786
+[https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-538769707570332786](https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-5387697075703327867)
