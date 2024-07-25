@@ -12,4 +12,4 @@ Bruno.furuta@escola.pr.gov.br
 
 
 ![]()
-[https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-538769707570332786](https://tenor.com/pt-BR/view/war-thunder-tank-dancing-gif-5387697075703327867)
+<div class="tenor-gif-embed" data-postid="5387697075703327867" data-share-method="host" data-aspect-ratio="1.53846" data-width="100%"><a href="https://tenor.com/view/war-thunder-tank-dancing-gif-5387697075703327867">War Thunder Tank GIF</a>from <a href="https://tenor.com/search/war+thunder-gifs">War Thunder GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
