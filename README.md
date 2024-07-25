@@ -11,4 +11,4 @@ Meu nome é : Brunofuruta
 Bruno.furuta@escola.pr.gov.br
 
 ![]()
-https://media.tenor.com/m/SsTx8fK1LHsAAAAd/war-thunder-tank.gif
+(https://media1.tenor.com/m/SsTx8fK1LHsAAAAd/war-thunder-tank.gif)
