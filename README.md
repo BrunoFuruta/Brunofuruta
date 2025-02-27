@@ -10,5 +10,5 @@ Meu nome é : Brunofuruta
 
 Bruno.furuta@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/ePT-QbQjKmQAAAAC/tank-kpz-70.gif](https://media.tenor.com/4IL8QJDz_GsAAAAm/gojo-dance-transparent-gojo.webp)
+![](https://media1.tenor.com/m/ePT-QbQjKmQAAAAC/tank-kpz-70.gif](https://media.tenor.com/4IL8QJDz_GsAAAAm/gojo-dance-transparent-gojo.webp](https://media.tenor.com/4IL8QJDz_GsAAAAm/gojo-dance-transparent-gojo.webp)
 
