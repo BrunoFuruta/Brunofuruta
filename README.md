@@ -10,4 +10,4 @@ Meu nome é : Brunofuruta
 
 Bruno.furuta@escola.pr.gov.br
 
-![].(https://media.tenor.com/4IL8QJDz_GsAAAAi/gojo-dance-transparent-gojo.gif)
+![].([https://media.tenor.com/4IL8QJDz_GsAAAAi/gojo-dance-transparent-gojo.gif])
